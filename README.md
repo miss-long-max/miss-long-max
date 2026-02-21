@@ -1,5 +1,5 @@
-## Hi 👋
-
+## Greetings 👋
+---
 ## I am a Woman
 - in Tech 👩‍💻
 - with kids 👩‍👧‍👦
